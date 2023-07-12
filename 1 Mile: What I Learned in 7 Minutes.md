@@ -1,3 +1,5 @@
+# 1 Mile: What I Learned in 7 Minutes
+
 I was rounding the final runway of my fourth and final lap, giving it my all. After months of consistent training, I was ready to achieve a goal I had set for myself nearly six years prior - the sub-seven minute mile. I had never identified with or been perceived as a runner or an athlete, and this was a big deal.
 
 And when I finally sprinted past the starting point and stopped my watch, I checked the numbers flashing on the screen: 7:00.9. Less than a second away, but I didn't make it. We don't hear nearly enough about the misses along the way, even though they happen all the time. But missing our goals and feeling like a failure is missing the point. We might not end up where we thought we would, but how we got there always teaches us more than we expect.
